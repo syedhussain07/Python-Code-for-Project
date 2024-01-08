@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Smokingskills
+- 👋 Hi, I’m Syed
 - 👀 I’m interested in entreprenuership
 - 🌱 I’m currently learning marketing and advertsing
 - 💞️ I’m looking to collaborate on social media.
